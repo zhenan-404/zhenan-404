@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @zhenan-404
 - 👀 I’m interested in science and theology
 - 🌱 I’m currently learning musicology
-- 📫 2033668794@qq.com
 - There's nothing more to say
 
 <!---
